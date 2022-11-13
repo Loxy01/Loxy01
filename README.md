@@ -4,5 +4,6 @@
 
 👐Here I will post projects for free access (for everyone).
 
-My telegram: t.me/Andreyonthebest
+My telegram: t.me/Andreyonthebest/
+
 My VK account: vk.com/new2019year_top
