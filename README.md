@@ -7,7 +7,3 @@
 My telegram: t.me/Andreonthebest
 
 My VK account: vk.com/new2019year_top
-
-
-Technical information (not important):
-https://github.com/U-Ra-All/Movies
